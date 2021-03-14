@@ -33,7 +33,5 @@ Harry Potter and the Philosopher’s Stone
 Slytherin
 Notable members include Severus Snape, Draco Malfoy and (rather unfortunately) Lord Voldemort.
 
-‘Or perhaps in Slytherin
-You’ll make your real friends
 
 

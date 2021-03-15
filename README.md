@@ -30,8 +30,7 @@ Where those of wit and learning
 Will always find their kind.’
 Harry Potter and the Philosopher’s Stone
 
-Slytherin
-Notable members include Severus Snape, Draco Malfoy and (rather unfortunately) Lord Voldemort.
+
 
 
 

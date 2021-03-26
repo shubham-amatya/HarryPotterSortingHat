@@ -21,8 +21,6 @@ Those patient Hufflepuffs are true
 And unafraid of toil.’
 Harry Potter and the Philosopher’s Stone
 
-Ravenclaw
-Notable members include Luna Lovegood, Gilderoy Lockhart and Filius Flitwick.
 
 
 

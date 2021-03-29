@@ -13,7 +13,7 @@ Set Gryffindors apart.’
 Harry Potter and the Philosopher’s Stone
 
 Hufflepuff
-Notable members include Newt Scamander, Cedric Diggory and Nymphadora Tonks.
+
 
 
 

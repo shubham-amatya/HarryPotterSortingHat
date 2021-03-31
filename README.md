@@ -12,7 +12,7 @@ Their daring, nerve and chivalry
 Set Gryffindors apart.’
 Harry Potter and the Philosopher’s Stone
 
-Hufflepuff
+
 
 
 
